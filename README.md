@@ -1,4 +1,5 @@
 # DragClick.github.io
-https://DragClick.iR
-https://DragClick.github.io
-https://discord.gg/highcombo
+
+<br> https://DragClick.iR <br />
+<br> https://DragClick.github.io<br />
+<br> https://discord.gg/highcombo<br />
